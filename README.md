@@ -3,7 +3,7 @@
 
 ● 🎅 i'm a **programmer** and I like to play with **high** voltage
 
-● 🎹 my favowite wanguage is python maybe
+● 🎹 my favowite wanguage is python maybe (please don't bully me)
 
 ● 🍅 [https://pomajdorownia.cf/](https://pomajdorownia.cf/)
 
