@@ -8,4 +8,4 @@
 ● 🍅 [https://pomajdorownia.cf/](https://pomajdorownia.cf/)
 
 anyway<br>
-I forgor 💀 about his github account and didn't use it so that's why the commit history looks like that
+I forgor 💀 about his github account and didn't use it so that's why the commit history looks like that.
