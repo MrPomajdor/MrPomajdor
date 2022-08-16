@@ -5,7 +5,7 @@
 
 ● 🎹 my favowite wanguage is python maybe (please don't bully me D:)
 
-● 🍅 [https://pomajdorownia.cf/](https://pomajdorownia.cf/)
+● 🍅 [https://pomajdorownia.pl/](https://pomajdorownia.pl/)
 
 anyway<br>
 I forgor 💀 about his github account and didn't use it so that's why the commit history looks like that.
